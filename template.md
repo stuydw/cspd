@@ -1,6 +1,6 @@
-## Wednesday, 9/6 Blissfull respite, I hardly knew ye by Clyde "Thluffy" Sinclair
+## Wednesday, 9/6 Look, it's the Aim by Clyde "Thluffy" Sinclair
 
-**Interesting Tech News:** [Do You Even Olin?](https://blog.ledwards.com/the-college-that-produces-founders-at-3-times-the-rate-of-stanford-2c53ea44f91e)
+**Interesting Tech News:** [Often Insightful](https://xkcd.com)
 
 Don't forget, each new post should go above the one before. If you are late in posting, please put yours in the correct position.
 
